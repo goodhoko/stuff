@@ -1,1 +1,2 @@
 - [📹 1 million fps Slow Motion video of bullet impacts made by Werner Mehl from Kurzzeit](https://www.youtube.com/watch?v=QfDoQwIAaXg)
+- [📹 RAW: Skimboarders Drain River Into The Ocean And Cause MASSIVE Beach Erosion](https://www.youtube.com/watch?v=8JgWNkfVBug)

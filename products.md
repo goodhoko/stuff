@@ -1,0 +1,2 @@
+- [Zendura Powerbanks](https://zendure.com/)
+- [Hyperlite backpacks](https://www.hyperlitemountaingear.com/)
