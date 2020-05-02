@@ -1,2 +1,3 @@
-- [📹 1 million fps Slow Motion video of bullet impacts made by Werner Mehl from Kurzzeit](https://www.youtube.com/watch?v=QfDoQwIAaXg)
-- [📹 RAW: Skimboarders Drain River Into The Ocean And Cause MASSIVE Beach Erosion](https://www.youtube.com/watch?v=8JgWNkfVBug)
+- [1 million fps Slow Motion video of bullet impacts made by Werner Mehl from Kurzzeit](https://www.youtube.com/watch?v=QfDoQwIAaXg)
+- [RAW: Skimboarders Drain River Into The Ocean And Cause MASSIVE Beach Erosion](https://www.youtube.com/watch?v=8JgWNkfVBug)
+- [DefineBeauty Part 3: “Crème Caramel” by Canada - NOWNESS presents](https://vimeo.com/96601281)
