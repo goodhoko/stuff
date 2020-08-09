@@ -8,6 +8,12 @@ Magic toaster from the sixties that lowers and pops the bread automatically. The
 
 ![](img/sunbeam-toaster.jpeg)
 
+## Dish soap dispenser
+The life was never the same after Anna showed me I don't have to flip the bottle every time I need a drop of detergent.
+
+## Birkenstock sandals
+quality ☑︎, utility ☑︎, design ☑︎
+
 ## Flora
 The more plants the better. Plants listed here are somewhat interesting.
 
