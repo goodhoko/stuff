@@ -17,6 +17,22 @@ quality ☑︎, utility ☑︎, design ☑︎
 ## Flora
 The more plants the better. Plants listed here are somewhat interesting.
 
+### Arboretum
+I was never into collecting stuff but I might change my mind when it comes to trees. There should live as many as possibly fits in the garden. Here's a (growing) list.
+- [ ] beech
+- [ ] oak
+- [ ] spruce
+- [ ] fir
+- [ ] sorbus
+- [ ] silver birch (betula pendula)
+- [ ] ash
+- [ ] horse-chestnut (aesculus hippocastanum)
+- [ ] maple
+- [ ] pine
+- [ ] willow
+- [ ] aspen
+- [ ] larch
+
 ### Amorphophallus
 Most of the time this plant is not visible at all. All you'll get is just a box of clay. However during the spring you start to water it and then in few weeks a giant stem will grow straight up only to dry out and 'die' month or two later.
 
